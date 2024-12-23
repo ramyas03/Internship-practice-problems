@@ -1,1 +1,1 @@
-Internship practice problems
+Internship Practice Problems
